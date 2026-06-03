@@ -1,4 +1,4 @@
-# 
+# Avanzado algorithmic trading bot flujo de trabajo para Mac OS | Exclusivo algorithmic trading bot flujo de trabajo para PC Windows. Con conectividad Web3 y minería de liquidez — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
